@@ -1,0 +1,7 @@
+P
+O
+L
+I
+N
+A 
+RASuLOVA
